@@ -60,6 +60,7 @@ This experience has helped me explore business challenges, marketing, customer n
 
 I am interested in connecting with professionals working in Sales, Business Development, Account Management, Growth, and AI-driven business solutions.
 
+- **LinkedIn:** [Mohit Mendhe](https://www.linkedin.com/in/mohit-mendhe-aa7126202/)
 - **GitHub:** [MohitMendhe03](https://github.com/MohitMendhe03)
 - **Experivel:** [experivel.in](https://experivel.in/)
 
